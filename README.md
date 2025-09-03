@@ -5,6 +5,7 @@
  ✧･ﾟ: *✧･ﾟ:* [strawpage](https://bloodvaelbat.straw.page) *:･ﾟ✧*:･ﾟ✧
                                     
  ⛧━─┉┈◈ [ata](https://veil.atabook.org) ◈┈┉─━⛧
+ 
 <img width="733" height="152" alt="1000029687" src="https://github.com/user-attachments/assets/dc973312-36ac-4f75-8260-c1f3f2554b23" />
 
 
