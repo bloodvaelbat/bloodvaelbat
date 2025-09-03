@@ -1,5 +1,8 @@
 ₊‧ʚ・︵︵ ₊˚๑ ᕱᕱ ꒱✦ ₊ ︵︵・₊﹆ɞ‧₊
 
+   <p align="center">
+  <img src="https://img.shields.io/badge/❤️%20Profile%20Views-0-680000?style=for-the-badge&color=680000" alt="Profile views" />
+</p>
 <img width="1440" height="1018" alt="1000029688" src="https://github.com/user-attachments/assets/a5061193-6ded-4be8-a824-f719caae5f22" />
 
  ✧･ﾟ: *✧･ﾟ:* [strawpage](https://bloodvaelbat.straw.page) *:･ﾟ✧*:･ﾟ✧
